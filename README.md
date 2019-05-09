@@ -37,43 +37,60 @@ i będzie fest
 
 wypierdalam w kosmos jakbys zezarł DMT
 
-pierdolę fobie, 
-tak o nich mówię  
-więcej się dowiedz 
+pierdolę fobie, tak
+tak o nich mówię 
+na drobne nie rozmień
+
 mimo, że czujesz 
 że to nie jest to 
 - co komu to komu 
 i z czym tu do ludzi
 
-jebać, że przedział
-jebać, że sztos 
-dym leci z grama
-to cie obudzi
-świat jest w oparach 
-kiedy walą we drzwi
+jebać, że przedział, nie zawsze jest sztos 
+dym leci z grama no to cie budzi
+świat jest w oparach, już walą we drzwi
 mentalnie obita mordaaaa
 
-raz za raaaazem, zamknięty obieg
-pozbądź się klątwy,  
-
-- leci za przykładem, 
-poczuj drżenie całym ciałem
-
-sen w oparach to jedyna
-taka faza
 raz za raaaazem
+zamknięty obieg
+zrzuć tę maskę
 
-bilet gdzieś się zapodział w oparach twojej  codzienności
+taka klątwa  
+jeden z drugim 
+leci za przykładem 
+
+poczuj drżenie całym ciałem
+skasuj, ten sen to opary to jedyna, taka faza
+raz za raaaazem, bilet gdzieś się zapodziałem
+
+w oparach twojej  codzienności
 przedziały życia częściej są puste, mnóstwo gości
-ale cię skasują chamy, skasują z radością, bez mrugnięcia
-bez litości barter
+ale cię skasują chamy, skasują z radością, 
+
+bez mrugnięcia
+bez litości, żaden barter
 
 ale zaraz  zaraz
 chyba kurwa bletek zapomniałem
 taka faza
 
 
-
+Niezrozumieniem odpłacają wyrozumiałość
+Że niby jebnięty, pierdolę sentymenty, idę na całość
+Idę po jakość, idę po towiec i po twój sos
+Nieznany człowiek nic o nim nie powiesz ale czujesz że to jest ktoś
+Kto kogo dla kogo i z kim tak to tutaj jest know-how
+Znowu pchasz nochal a zaraz się pytasz gdzie mooja torba
+Psom macha się ogon, witają się pytają how how
+                            Ja ich nie słucham, nawet gdy z nimi gadam
+Myślisz sobie to maska, moze to farsa, strategia czy marka
+Możesz zwrócic sie do mnie - # najwyzsza instancja
+To oczywiście proste, że chce dla ciebie dobrze, hombre
+Będę ci jak ojciec, dla twojego dobra zajebie ci w morde
+Raperzy instant - zalewam proszek wrzątkiem
+Cechuje ich redundancja - zastąpisz pionka pionkiem
+Następna kolejka, no prosze, czy tego chcesz czy nie
+Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 
 
