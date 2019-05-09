@@ -37,26 +37,22 @@ i będzie fest
 
 wypierdalam w kosmos jakbys zezarł DMT
 
-pierdolę fobie
-tak o nich mówię, 
-więcej się dowiedz         
-mimo, że czujesz że 
-to nie jest to
-
-- co komu to komu 
+pierdolę fobie, tak o nich mówię, 
+więcej się dowiedz mimo, że czujesz 
+że to nie jest to - co komu to komu 
 i z czym tu do ludzi
 
-jebać że przedział
-jebać, masz sztos
-
-szarpią za drzwi (walą w te drzwi)
+jebać, że przedział
+jebać, że sztos
 dym prosto z jointa
+to cie obudzi
+- w oparach tak jest
+walą w te drzwi
+zamknięty obieg
 raz za razem, obita morda
-w oparach tak jest
 
-zamknij ten obieg, 
-to cie obudzi 
 pozbądź się klątwy
+
 sen tkwi w oparach 
 daj sobie wdech
 
