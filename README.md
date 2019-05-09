@@ -1,5 +1,4 @@
-# HC_SG68_PKP
-Ganju
+# GANJU x MOTHNODE_ PKP
 
 ```
 
