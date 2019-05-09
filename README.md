@@ -24,7 +24,7 @@ jade pod to dyktando
 ty w mojej szkole 
 pomysł jest marny
 dostalbys DST - ale sluchasz na darmo, 
-
+zamotaną głowę
 przez RTB, no halo
 sluchasz jakbym cie uczyl 
 bez cienia mej skruchy
@@ -36,10 +36,34 @@ sam sobie wrzucę
 
 wypierdalam w kosmos jakbys zezarł DMT
 
-nic o nim nie powiesz ale czujesz że to jest ktoś
-Kto kogo dla kogo i z kim tak to tutaj jest know-how
-Znowu pchasz nochal a zaraz się pytasz gdzie mooja torba
-Psom macha się ogon, witają się pytają how how
+pierdolę fobie
+tak o nich mówię, 
+więcej się dowiedz         
+mimo, że czujesz że 
+to nie jest to
+
+co komu to komu 
+i z czym tu do ludzi ey
+
+jebać że przedział
+dym leci z jointa
+szarpią za drzwi 
+raz za razem, obita morda
+to cie obudzi 
+
+jebać, że przedział
+zamknij ten obieg, 
+pozbądź się klątwy
+daj sobie wdech
+
+
+
+
+Znowu pchasz nochal 
+a zaraz się pytasz 
+gdzie mooja torba
+Psom macha się ogon, 
+witają się pytają how how
 
 Na oczach mam filtr, nie licz na mnie dziś
 Życie łatwo wchodzi w drift tak jak rozpoczynam flirt 
