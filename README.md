@@ -39,17 +39,18 @@ wypierdalam w kosmos jakbys zezarł DMT
 
 pierdolę fobie, tak
 tak o nich mówię 
-na drobne nie rozmień
+na drobne nie rozmień 
 
+twoich wspomnień
 mimo, że czujesz 
-że to nie jest to 
+
+że to nie one ej no
+
 - co komu to komu 
 i z czym tu do ludzi
-
-jebać, że przedział, nie zawsze jest sztos 
-dym wijący z się grama zawsze cie zbudzi
-świat jest w oparach, już walą we drzwi
-mentalnie obita mordaaaa
+jebać, że przedział, nie zawsze to sztos 
+myślałem, dym wijący z się grama 
+zawsze cie zbudzi, los
 
 raz za raaaazem
 zamknięty obieg
@@ -57,11 +58,15 @@ zrzuć tę maskę
 
 taka klątwa  
 jeden z drugim 
-leci za przykładem 
-
+leci za przykładem
 poczuj drżenie całym ciałem
-skasuj, ten sen to opary to jedyna, taka faza
-raz za raaaazem, bilet gdzieś się zapodziałem
+skasuj 
+ten sen to opary 
+to jedyna, taka faza
+raz za raaaazem 
+kiedy wiem, bilet 
+znowu gdzieś się zapodziałem ey
+
 
 w oparach codzienności
 przedziały życia częściej są puste, mnóstwo gości
@@ -73,6 +78,9 @@ bez litości, żaden barter
 ale zaraz  zaraz
 chyba kurwa bletek zapomniałem
 taka faza
+
+świat jest w oparach, już walą we drzwi
+mentalnie obita mordaaaa
 
 
 Niezrozumieniem odpłacają wyrozumiałość
