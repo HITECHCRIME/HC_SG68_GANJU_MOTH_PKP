@@ -20,16 +20,22 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-pierdole fobie //// 
-jade pod to dyktando, ty w mojej szkole 
-nieee, to jest  moc
-dostalbys DST, ale sluchasz mnie przez RTB, 
-halo
-wypierdalam w kosmos jakbys zezarł DMT
+pierdole fobie
+jade pod to dyktando
+ty w mojej szkole 
+pomysł jest marny
+dostalbys DST - ale sluchasz na darmo, 
 
+przez RTB, no halo
 sluchasz jakbym cie uczyl 
-w oparach tak jest
-jakbym sam sobie wrzucił - BDB
+bez cienia mej skruchy
+- w oparach tak jest
+
+pierdolone BDB
+sam sobie wrzucę
+
+
+wypierdalam w kosmos jakbys zezarł DMT
 
 nic o nim nie powiesz ale czujesz że to jest ktoś
 Kto kogo dla kogo i z kim tak to tutaj jest know-how
