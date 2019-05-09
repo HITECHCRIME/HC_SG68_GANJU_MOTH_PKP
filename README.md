@@ -20,6 +20,16 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
+pierdole fobie //// nic o nim nie powiesz ale czujesz że to jest ktoś
+Kto kogo dla kogo i z kim tak to tutaj jest know-how
+Znowu pchasz nochal a zaraz się pytasz gdzie mooja torba
+Psom macha się ogon, witają się pytają how how
+
+Na oczach mam filtr, nie licz na mnie dziś
+Życie łatwo wchodzi w drift tak jak rozpoczynam flirt 
+I dziki, byki, tury to nie straszne są dziś
+przewodzi mi wilk, światło otwartych drzwi
+
 ```
 
 myślę jak zrobić drugą zwrotę, żeby byla lustrzanym odpiciem rytmu i rymu dla pierwszej. wiesz, jakby zastapic 'nienznay czlowiek' 'pierdole fobie' 
