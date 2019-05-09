@@ -39,22 +39,28 @@ wypierdalam w kosmos jakbys zezarł DMT
 
 pierdolę fobie, tak o nich mówię, 
 więcej się dowiedz mimo, że czujesz 
-że to nie jest to - co komu to komu 
+że to nie jest to 
+
+- co komu to komu 
 i z czym tu do ludzi
 
 jebać, że przedział
 jebać, że sztos
 dym prosto z jointa
 to cie obudzi
-- w oparach tak jest
-walą w te drzwi
+
+tak jest w oparach 
+no bo walą w te drzwi
+mentalnie obita morda  
+
+raz za razem 
 zamknięty obieg
-raz za razem, obita morda
-
+idź za przykładem
 pozbądź się klątwy
-
+poczuj drżenie całym ciałem
 sen tkwi w oparach 
-daj sobie wdech
+ale zaraz, chyba kurwa bletek zapomniałem
+
 
 
 
