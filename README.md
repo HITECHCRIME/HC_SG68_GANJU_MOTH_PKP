@@ -21,10 +21,15 @@ Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 pierdole fobie //// 
-jade jak pod dyktando, ty  w mojej szkole dostalbys DST
-sluchasz RTB, wypierdalam w kosmos jakbys zezarł DMT
+jade pod to dyktando, ty w mojej szkole 
+nieee, to jest  moc
+dostalbys DST, ale sluchasz mnie przez RTB, 
+halo
+wypierdalam w kosmos jakbys zezarł DMT
 
-sluchasz jakbym cie uczyl - BDB
+sluchasz jakbym cie uczyl 
+w oparach tak jest
+jakbym sam sobie wrzucił - BDB
 
 nic o nim nie powiesz ale czujesz że to jest ktoś
 Kto kogo dla kogo i z kim tak to tutaj jest know-how
