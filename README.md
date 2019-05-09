@@ -37,7 +37,7 @@ i będzie fest
 
 wypierdalam w kosmos jakbys zezarł DMT
 
-pierdolę fobie, tak o nich mówię, 
+pierdolę fobie, tak o nich mówię, (tak się do nich mowi)
 więcej się dowiedz mimo, że czujesz 
 że to nie jest to 
 
