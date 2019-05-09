@@ -32,6 +32,7 @@ bez cienia mej skruchy
 
 pierdolone BDB
 sam sobie wrzucę
+i będzie fest
 
 
 wypierdalam w kosmos jakbys zezarł DMT
@@ -41,12 +42,15 @@ tak o nich mówię,
 więcej się dowiedz         
 mimo, że czujesz że 
 to nie jest to
-- co komu to komu 
-i z czym tu do ludzi ey
 
-dym leci z jointa
+- co komu to komu 
+i z czym tu do ludzi
+
 jebać że przedział
-szarpią za drzwi 
+jebać, masz sztos
+
+szarpią za drzwi (walą w te drzwi)
+dym prosto z jointa
 raz za razem, obita morda
 w oparach tak jest
 
