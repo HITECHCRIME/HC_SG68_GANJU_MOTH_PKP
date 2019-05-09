@@ -46,15 +46,16 @@ i z czym tu do ludzi
 
 jebać, że przedział
 jebać, że sztos
-dym prosto z jointa
+dym leci z jointa
 to cie obudzi
 
 tak jest w oparach 
-no bo walą w te drzwi
-mentalnie obita morda  
+- walą w te drzwi
+mentalnie obita mordaaaa
 
-raz za razem 
+raz za raaaazem 
 zamknięty obieg
+raz za raaaazem
 idź za przykładem
 pozbądź się klątwy
 poczuj drżenie całym ciałem
