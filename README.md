@@ -50,7 +50,7 @@ jebać, że sztos
 dym leci z grama
 to cie obudzi
 świat jest w oparach 
-- walą we drzwi
+kiedy walą we drzwi
 mentalnie obita mordaaaa
 
 raz za raaaazem, zamknięty obieg
