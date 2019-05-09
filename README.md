@@ -37,30 +37,40 @@ i będzie fest
 
 wypierdalam w kosmos jakbys zezarł DMT
 
-pierdolę fobie, tak o nich mówię, (tak się do nich mowi)
-więcej się dowiedz mimo, że czujesz 
+pierdolę fobie, 
+tak o nich mówię  
+więcej się dowiedz 
+mimo, że czujesz 
 że to nie jest to 
-
 - co komu to komu 
 i z czym tu do ludzi
 
 jebać, że przedział
-jebać, że sztos
-dym leci z jointa
+jebać, że sztos 
+dym leci z grama
 to cie obudzi
-
-tak jest w oparach 
-- walą w te drzwi
+świat jest w oparach 
+- walą we drzwi
 mentalnie obita mordaaaa
 
-raz za raaaazem 
-zamknięty obieg
-raz za raaaazem
-idź za przykładem
-pozbądź się klątwy
+raz za raaaazem, zamknięty obieg
+pozbądź się klątwy,  
+
+- leci za przykładem, 
 poczuj drżenie całym ciałem
-sen tkwi w oparach 
-ale zaraz, chyba kurwa bletek zapomniałem
+
+sen w oparach to jedyna
+taka faza
+raz za raaaazem
+
+bilet gdzieś się zapodział w oparach twojej  codzienności
+przedziały życia częściej są puste, mnóstwo gości
+ale cię skasują chamy, skasują z radością, bez mrugnięcia
+bez litości barter
+
+ale zaraz  zaraz
+chyba kurwa bletek zapomniałem
+taka faza
 
 
 
