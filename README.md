@@ -21,3 +21,8 @@ Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 ```
+
+myślę jak zrobić drugą zwrotę, żeby byla lustrzanym odpiciem rytmu i rymu dla pierwszej. wiesz, jakby zastapic 'nienznay czlowiek' 'pierdole fobie' 
+cos w stylu 'jade jak pod dyktando, ty  w mojej szkole dostalbys DST
+sluchasz RTB, wypierdalam w kosmos jakbys zezarł DMT'
+moze cos z tymi ocenami i dragami na zasadzie NDST - MDMA to nie wiem czy sie sklei i na koniec do tego PKP takie cos 'sluchasz jakbym cie uczyl - BDB'
