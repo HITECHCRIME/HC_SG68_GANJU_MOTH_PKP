@@ -50,6 +50,7 @@ dym leci z jointa
 szarpią za drzwi 
 raz za razem, obita morda
 to cie obudzi 
+w oparach tak jest
 
 jebać, że przedział
 zamknij ten obieg, 
