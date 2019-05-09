@@ -47,7 +47,7 @@ mimo, że czujesz
 i z czym tu do ludzi
 
 jebać, że przedział, nie zawsze jest sztos 
-dym leci z grama no to cie budzi
+dym wijący z się grama zawsze cie zbudzi
 świat jest w oparach, już walą we drzwi
 mentalnie obita mordaaaa
 
@@ -63,7 +63,7 @@ poczuj drżenie całym ciałem
 skasuj, ten sen to opary to jedyna, taka faza
 raz za raaaazem, bilet gdzieś się zapodziałem
 
-w oparach twojej  codzienności
+w oparach codzienności
 przedziały życia częściej są puste, mnóstwo gości
 ale cię skasują chamy, skasują z radością, 
 
