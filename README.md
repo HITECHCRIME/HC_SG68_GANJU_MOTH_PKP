@@ -41,21 +41,26 @@ tak o nich mówię,
 więcej się dowiedz         
 mimo, że czujesz że 
 to nie jest to
-
-co komu to komu 
+- co komu to komu 
 i z czym tu do ludzi ey
 
-jebać że przedział
 dym leci z jointa
+jebać że przedział
 szarpią za drzwi 
 raz za razem, obita morda
-to cie obudzi 
 w oparach tak jest
 
-jebać, że przedział
 zamknij ten obieg, 
+to cie obudzi 
 pozbądź się klątwy
+sen tkwi w oparach 
 daj sobie wdech
+
+
+
+
+
+
 
 
 
