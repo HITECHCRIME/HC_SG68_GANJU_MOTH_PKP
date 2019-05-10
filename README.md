@@ -23,7 +23,7 @@ pierdolę fobie, tak, tak o nich mówię
 na drobne nie rozmień (się) twoich wspomnień
 mimo, że czujesz - że to nie one (ye)
 - co komu to komu i z czym tu do ludzi
-jebać, że przedział, nie zawsze sztos 
+jebać, że przedział, nie zawsze (to) sztos 
 myślałem, dym wijący z się grama znowu cie zbudzi, los
 buch
 raz za raaaazem zamknięty obieg
@@ -40,7 +40,7 @@ raz za razem
 kiedy wiem, bilet 
 znowu gdzieś zapodziałem
 w oparach codzienności
-
+żaden barter
 
 
 bez mrugnięcia
