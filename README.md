@@ -38,9 +38,9 @@ skasuj
 ten stan to opary 
 to jedyna, taka faza
 raz za razem 
-kiedy wiem, bilet 
-znowu gdzieś zapodziałem
-w oparach (ramach) codzienności
+kiedy wiem, że jest fun
+bilet znowu gdzieś zapodziałem
+w ramach codzienności
 żaden barter
 
 
