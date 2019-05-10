@@ -21,7 +21,7 @@ Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 pierdolę fobie, tak, tak o nich mówię 
 na drobne nie rozmień - twoich wspomnień
-mimo, że czujesz - że to nie one ej no
+mimo, że czujesz - że to nie one
 - co komu to komu i z czym tu do ludzi
 jebać, że przedział, nie zawsze to sztos 
 myślałem, dym wijący z się grama znowu cie zbudzi, los
