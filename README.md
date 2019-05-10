@@ -22,17 +22,16 @@ Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 pierdolę fobie, tak, tak o nich mówię 
 na drobne nie rozmień - twoich wspomnień
 mimo, że czujesz - że to nie one ej no
-
 - co komu to komu i z czym tu do ludzi
 jebać, że przedział, nie zawsze to sztos 
 myślałem, dym wijący z się grama zawsze cie zbudzi, los
 
 raz za raaaazem zamknięty obieg
-zrzuć tę maskę
+zrzuć tę maskę - aye
 
 taka klątwa jeden z drugim 
 leci za przykładem
-poczuj drżenie całym ciałem
+poczuj drżenie całym ciałem - jak
 skasuj 
 ten stan to opary 
 to jedyna, taka faza
