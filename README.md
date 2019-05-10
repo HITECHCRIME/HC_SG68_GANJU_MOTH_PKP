@@ -25,12 +25,12 @@ mimo, że czujesz - że to nie one (ye)
 - co komu to komu i z czym tu do ludzi
 jebać, że przedział, nie zawsze sztos 
 myślałem, dym wijący z się grama znowu cie zbudzi, los
-
+buch
 raz za raaaazem zamknięty obieg
 zrzuć tę maskę - tak
 taka klątwa jeden z drugim 
 leci za przykładem
-
+(ślad)
 przedziały życia częściej są puste, mnóstwo gości ale 
 skasują cię chamy, skasują z radością, 
 poczuj drżenie całym ciałem, skasuj 
