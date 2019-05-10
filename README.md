@@ -23,25 +23,20 @@ pierdolę fobie, tak, tak o nich mówię
 na drobne nie rozmień - twoich wspomnień
 mimo, że czujesz - że to nie one ej no
 
-- co komu to komu 
-i z czym tu do ludzi
+- co komu to komu i z czym tu do ludzi
 jebać, że przedział, nie zawsze to sztos 
-myślałem, dym wijący z się grama 
-zawsze cie zbudzi, los
+myślałem, dym wijący z się grama zawsze cie zbudzi, los
 
-raz za raaaazem
-zamknięty obieg
+raz za raaaazem zamknięty obieg
 zrzuć tę maskę
 
-taka klątwa  
-jeden z drugim 
+taka klątwa jeden z drugim 
 leci za przykładem
 poczuj drżenie całym ciałem
-
 skasuj 
 ten stan to opary 
 to jedyna, taka faza
-raz za raaaazem 
+raz za razem 
 kiedy wiem, bilet 
 znowu gdzieś się zapodziałem ey
 
