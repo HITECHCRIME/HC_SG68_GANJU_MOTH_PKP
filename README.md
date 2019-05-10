@@ -20,29 +20,25 @@ Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 pierdolę fobie, tak, tak o nich mówię 
-na drobne nie rozmień - twoich wspomnień
-mimo, że czujesz - że to nie one
+na drobne nie rozmień (się) twoich wspomnień
+mimo, że czujesz - że to nie one (ye)
 - co komu to komu i z czym tu do ludzi
 jebać, że przedział, nie zawsze sztos 
 myślałem, dym wijący z się grama znowu cie zbudzi, los
 
 raz za raaaazem zamknięty obieg
-zrzuć tę maskę - aye
+zrzuć tę maskę - tak
 taka klątwa jeden z drugim 
 leci za przykładem
 
-przedziały życia częściej są puste, mnóstwo gości
-ale cię skasują chamy, skasują z radością, 
-poczuj drżenie całym ciałem
-
-skasuj 
+przedziały życia częściej są puste, mnóstwo gości ale 
+skasują cię chamy, skasują z radością, 
+poczuj drżenie całym ciałem, skasuj 
 ten stan to opary 
 to jedyna, taka faza
 raz za razem 
 kiedy wiem, bilet 
 znowu gdzieś zapodziałem
-
-
 w oparach codzienności
 
 
