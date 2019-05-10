@@ -23,26 +23,29 @@ pierdolę fobie, tak, tak o nich mówię
 na drobne nie rozmień - twoich wspomnień
 mimo, że czujesz - że to nie one
 - co komu to komu i z czym tu do ludzi
-jebać, że przedział, nie zawsze to sztos 
+jebać, że przedział, nie zawsze sztos 
 myślałem, dym wijący z się grama znowu cie zbudzi, los
 
 raz za raaaazem zamknięty obieg
 zrzuć tę maskę - aye
-
 taka klątwa jeden z drugim 
 leci za przykładem
-poczuj drżenie całym ciałem - jak
+
+przedziały życia częściej są puste, mnóstwo gości
+ale cię skasują chamy, skasują z radością, 
+poczuj drżenie całym ciałem
+
 skasuj 
 ten stan to opary 
 to jedyna, taka faza
 raz za razem 
 kiedy wiem, bilet 
-znowu gdzieś się zapodziałem ey
+znowu gdzieś zapodziałem
 
 
 w oparach codzienności
-przedziały życia częściej są puste, mnóstwo gości
-ale cię skasują chamy, skasują z radością, 
+
+
 
 bez mrugnięcia
 bez litości, żaden barter
