@@ -19,32 +19,9 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-pierdole fobie
-jade pod to dyktando
-ty w mojej szkole 
-pomysł jest marny
-dostalbys DST - ale sluchasz na darmo, 
-zamotaną głowę
-przez RTB, no halo
-sluchasz jakbym cie uczyl 
-bez cienia mej skruchy
-- w oparach tak jest
-
-pierdolone BDB
-sam sobie wrzucę
-i będzie fest
-
-
-wypierdalam w kosmos jakbys zezarł DMT
-
-pierdolę fobie, tak
-tak o nich mówię 
-na drobne nie rozmień 
-
-twoich wspomnień
-mimo, że czujesz 
-
-że to nie one ej no
+pierdolę fobie, tak, tak o nich mówię 
+na drobne nie rozmień - twoich wspomnień
+mimo, że czujesz - że to nie one ej no
 
 - co komu to komu 
 i z czym tu do ludzi
@@ -60,8 +37,9 @@ taka klątwa
 jeden z drugim 
 leci za przykładem
 poczuj drżenie całym ciałem
+
 skasuj 
-ten sen to opary 
+ten stan to opary 
 to jedyna, taka faza
 raz za raaaazem 
 kiedy wiem, bilet 
@@ -81,6 +59,32 @@ taka faza
 
 świat jest w oparach, już walą we drzwi
 mentalnie obita mordaaaa
+
+
+
+
+
+
+
+pierdole fobie
+jade pod to dyktando
+ty w mojej szkole 
+pomysł jest marny
+dostalbys DST - ale sluchasz na darmo, 
+zamotaną głowę
+przez RTB, no halo
+sluchasz jakbym cie uczyl 
+bez cienia mej skruchy
+- w oparach tak jest
+
+pierdolone BDB
+sam sobie wrzucę
+i będzie fest
+
+
+wypierdalam w kosmos jakbys zezarł DMT
+
+
 
 
 Niezrozumieniem odpłacają wyrozumiałość
