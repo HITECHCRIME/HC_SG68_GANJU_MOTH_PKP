@@ -31,16 +31,19 @@ zrzuć tę maskę - tak
 taka klątwa jeden z drugim 
 leci za przykładem
 (ślad)
-przedziały życia częściej są puste, mnóstwo gości ale 
-skasują cię chamy, skasują z radością, 
-poczuj drżenie całym ciałem, 
-skasuj 
-ten stan to opary 
-to jedyna, taka faza
-raz za razem 
-kiedy wiem, że jest fun
-bilet znowu gdzieś zapodziałem (podziałem)
+przedziały życia częściej są puste, mnóstwo gości 
+- ale skasują cię chamy, skasują z radością 
+poczuj drżenie całym ciałem
+
+skasuj ten stan 
+to opary, to jedyna, taka faza
+raz za razem kiedy wiem, że jest tan,
+znowu ten stan, 
+już sam nie wiem 
+co mam ci powiedzieć
+bilet znowu gdzieś zapodziałem
 w ramach codzienności
+
 żaden barter
 
 
