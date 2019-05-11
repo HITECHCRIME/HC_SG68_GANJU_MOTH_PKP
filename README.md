@@ -39,7 +39,7 @@ ten stan to opary
 to jedyna, taka faza
 raz za razem 
 kiedy wiem, że jest fun
-bilet znowu gdzieś zapodziałem
+bilet znowu gdzieś zapodziałem (podziałem)
 w ramach codzienności
 żaden barter
 
