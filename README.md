@@ -36,15 +36,20 @@ przedziały życia częściej są puste, mnóstwo gości
 poczuj drżenie całym ciałem
 
 skasuj ten stan 
-to opary, to jedyna, taka faza
-raz za razem kiedy wiem, że jest tan,
-znowu ten stan, 
-już sam nie wiem 
+to opary
+to jedyna
+taka faza
+raz za razem 
+kiedy wiem 
+że jest tan
+znowu ten sam stan
+kiedy czuję ciebie
+ja już nie wiem sam  
 co mam ci powiedzieć
+żaden barter
 bilet znowu gdzieś zapodziałem
 w ramach codzienności
 
-żaden barter
 
 
 bez mrugnięcia
