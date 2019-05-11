@@ -31,7 +31,7 @@ zrzuć tę maskę - tak
 taka klątwa jeden z drugim 
 leci za przykładem
 (ślad)
-przedziały życia częściej są puste, mnóstwo gości 
+przedziały życia częściej (są) puste, mnóstwo gości 
 - ale skasują cię chamy, skasują z radością 
 poczuj drżenie całym ciałem
 
