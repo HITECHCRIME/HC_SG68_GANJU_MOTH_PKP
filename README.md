@@ -19,30 +19,40 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-pierdolę fobie, tak, tak o nich mówię 
-na drobne nie rozmień (się) twoich wspomnień
-mimo, że czujesz - że to nie one (nie?)
-- co komu to komu i z czym tu do ludzi
-jebać, że przydział, nie zawsze (to) sztos 
-myślałem - dym wijący z się grama znowu cie zbudzi, los
+pierdolę fobie, tak - tak o nich mówię 
+na drobne nie rozmień (się) 
+twoich wspomnień mimo, że czujesz
+- że to nie one (nie?)
+
+- co komu to komu i 
+z czym tu do ludzi
+jebać, że przydział, 
+nie zawsze (to) sztos 
+myślałem - dym 
+wijący się z grama 
+znowu cie zbudzi, loooos
+
 (buch)
-raz za raaaazem zamknięty obieg
+
+raz za raaaazem 
+zamknięty obieg
 zrzuć tę maskę - tak
-taka klątwa jeden z drugim 
-leci za przykładem
-(ślad)
-przedziały z życia częściej (są) puste, mnóstwo gości 
-- ale skasują cię chamy, skasują z radością 
-poczuj drżenie całym ciałem
+
+taka klątwa 
+jeden z drugim 
+leci za przykładem - ślad
+
+przedziały z życia 
+częściej (są) puste - mnóstwo gości 
+ale - skasują cię chamy 
+skasują z radością poczuj 
+drżenie całym ciałem
 
 skasuj ten stan 
-to opary
-to jedyna
-taka faza
-raz za razem 
-kiedy wiem 
-że jest tan
-znowu ten sam stan
+to opary to jedyna
+taka faza raz za razem 
+kiedy wiem, że jest tan
+znowu ten sam ten stan
 kiedy czuję ciebie
 ja już nie wiem sam  
 sam juz nie wiem
