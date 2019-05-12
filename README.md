@@ -29,11 +29,11 @@ przedziały z życia częściej (są) puste - mnóstwo gości
 ale - skasują cię chamy skasują z radością poczuj drżenie całym ciałem
 skasuj ten stan to opary to jedyna taka faza raz za razem 
 kiedy wiem, że jest tan znowu ten sam ten stan kiedy czuję ciebie
-ja już nie wiem sam  sam juz nie wiem co powiedzieć (mam ci)
-bilet znowu gdzieś zapodziałem w ramach codzienności  żaden barter
+ja już nie wiem sam, sam juz nie wiem co mam ci powiedzieć ha?
+bilet znowu gdzieś zapodziałem w ramach codzienności żaden barter
 
 bez mrugnięcia
-bez litości, żaden barter
+bez litości
 
 ale zaraz  zaraz
 chyba kurwa bletek zapomniałem
