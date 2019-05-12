@@ -23,15 +23,15 @@ pierdolę fobie, tak, tak o nich mówię
 na drobne nie rozmień (się) twoich wspomnień
 mimo, że czujesz - że to nie one (nie?)
 - co komu to komu i z czym tu do ludzi
-jebać, że przedział, nie zawsze (to) sztos 
-myślałem, dym wijący z się grama znowu cie zbudzi, los
+jebać, że przydział, nie zawsze (to) sztos 
+myślałem - dym wijący z się grama znowu cie zbudzi, los
 (buch)
 raz za raaaazem zamknięty obieg
 zrzuć tę maskę - tak
 taka klątwa jeden z drugim 
 leci za przykładem
 (ślad)
-przedziały życia częściej (są) puste, mnóstwo gości 
+przedziały z życia częściej (są) puste, mnóstwo gości 
 - ale skasują cię chamy, skasują z radością 
 poczuj drżenie całym ciałem
 
