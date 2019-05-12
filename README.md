@@ -45,7 +45,8 @@ kiedy wiem
 znowu ten sam stan
 kiedy czuję ciebie
 ja już nie wiem sam  
-co mam ci powiedzieć
+sam juz nie wiem
+co powiedzieć (mam ci)
 żaden barter
 bilet znowu gdzieś zapodziałem
 w ramach codzienności
