@@ -47,9 +47,9 @@ kiedy czuję ciebie
 ja już nie wiem sam  
 sam juz nie wiem
 co powiedzieć (mam ci)
-żaden barter
 bilet znowu gdzieś zapodziałem
 w ramach codzienności
+żaden barter
 
 
 
