@@ -35,8 +35,8 @@ znowu cie zbudzi, loooos
 (buch)
 
 raz za raaaazem 
-zamknięty obieg
-zrzuć tę maskę - tak
+zamknięty obieg - tak
+zrzuć tę maskę 
 
 taka klątwa 
 jeden z drugim 
