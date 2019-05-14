@@ -25,8 +25,8 @@ twoich wspomnień mimo, że czujesz - że to nie one (nie?)
 nie zawsze (to) sztos myślałem - dym wijący się z grama znowu cie zbudzi, loooos (buch)
 raz za raaaazem zamknięty obieg, zrzuć tę maskę - tak
 taka klątwa, jeden z drugim leci za przykładem - ślad
-przedziały z życia częściej (są) puste - mnóstwo gości 
-ale - skasują cię chamy skasują z radością poczuj drżenie całym ciałem
+z życia przedziały częściej są puste - siemano gościom
+ale - skasują cię chamy skasują z radością (poczuj) drżenie całym ciałem
 skasuj ten stan to opary to jedyna taka faza raz za razem 
 kiedy wiem, że jest tan znowu (w nowiu) ten sam ten stan kiedy czuję ciebie
 ja już nie wiem sam, sam juz nie wiem co mam ci powiedzieć ha?
