@@ -41,13 +41,13 @@ skasują cię chamy skasują z radością
 jedna dobra dusza - drżenie całym ciałem
 
 przypomnij sobie dobre sprawy
-te przeprawy warte, eskapady w bliss
-starte ręce od trzymania drążków
-zawsze mowily mi twoje oczy
-mimo że widzisz, że daję
+te w jedną stronę przeprawy warte, eskapady w bliss
+starte ręce od trzymania drążków zawsze 
+mowily mi twoje oczy 
 robisz absolutnie nic
+mimo że widzisz, że daję
 a sama uciekasz na koniec przedziału
-i odcinasz się w mig
+w swojej udręce zamykasz się click
 
 nie
 jednak te fobie
