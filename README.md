@@ -10,8 +10,8 @@ Kto kogo dla kogo i z kim tak to tutaj jest know-how
 Znowu pchasz nochal a zaraz się pytasz gdzie mooja torba
 Psom macha się ogon, witają się pytają how how
                             Ja ich nie słucham, nawet gdy z nimi gadam
-Myślisz sobie to maska, moze to farsa, strategia czy marka
-Możesz zwrócic sie do mnie - # najwyzsza instancja
+Myślisz sobie to farsa, moze to maska, strategia czy marka
+Możesz zwrócic sie do mnie - # najwyzsza instancja (ja)
 To oczywiście proste, że chce dla ciebie dobrze, hombre
 Będę ci jak ojciec, dla twojego dobra zajebie ci w morde
 Raperzy instant - zalewam proszek wrzątkiem
