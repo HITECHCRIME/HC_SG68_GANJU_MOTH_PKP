@@ -19,18 +19,26 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-Pierdolę fobie, tak - tak o nich mówię na drobne nie rozmień (się) 
+Pierdolę fobie, tak 
+tak o nich mówię na drobne nie rozmień (się) 
 twoich wspomnień mimo, że czujesz - że to nie one (nie?)
-- co komu to komu i z czym tu do ludzi, jebać (nie tak) (nie graj), że przydział, 
-nie zawsze (to) sztos myślałem - dym wijący się z grama znowu cie zbudzi, loooos (buch)
+
+- co komu to komu i z czym tu do ludzi, 
+jebać (nie tak) (nie graj), że przydział, 
+nie zawsze (to) sztos myślałem - 
+dym wijący się z grama znowu cie zbudzi, loooos (buch)
+
 raz za raaaazem zamknięty obieg, zrzuć tę maskę - tak
 taka klątwa, jeden z drugim leci za przykładem - ślad
+
 z życia przedziały częściej są puste - siemano gościom
 ale - skasują cię chamy skasują z radością (poczuj) drżenie całym ciałem
+
 skasuj ten stan to opary to jedyna taka faza raz za razem 
-kiedy wiem, że jest tan znowu (w nowiu) ten sam ten stan kiedy czuję ciebie
-ja już nie wiem sam, sam juz nie wiem co mam ci powiedzieć ha?
-bilet znowu gdzieś zapodziałem w ramach codzienności żaden barter
+kiedy wiem, że jest tan znowu (w nowiu) ten sam ten stan 
+kiedy czuję ciebie ja już nie wiem sam, sam juz nie wiem 
+co mam ci powiedzieć ha? bilet znowu gdzieś zapodziałem 
+w ramach codzienności żaden barter
 za brak litości
 
 ---------
