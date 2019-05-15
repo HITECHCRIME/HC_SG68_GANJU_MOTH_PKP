@@ -42,7 +42,7 @@ częściej są puste - siemano gościom
 stój - zostawiasz ślady, 
 
 skasują cię chamy skasują z radością
-jedna dobra dusza - drżenie całym ciałem
+jedna dobra dusza - drżenie ciałem całym
 
 poczuj ten stan to opary 
 to jedyna taka faza raz za razem 
