@@ -64,6 +64,7 @@ robisz absolutnie nic
 mimo że widzisz, że tyle daję, a ciągle oddalasz się
 wyciągam wnioski, potem mówisz że to szalone ej
 
+zaczynam mieć spore obawy
 co czuję i widzę nie pokrywa się z trudem
 wiem że na ciebie nie starczy mi sił
 
