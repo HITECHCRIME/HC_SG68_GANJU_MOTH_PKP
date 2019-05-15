@@ -19,47 +19,67 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-pierdolę fobie, człowiek 
-tak o nich mówię, na drobne nie rozmień - się 
-twoich wspomnień mimo, że czujesz że to nie one - nie?
+pierdolę fobie, tak tak o nich mówię, 
+na drobne nie rozmień - się czy twoich wspomnień 
+mimo, że czujesz że to nie one - nie?
 
 co komu to komu i z czym tu do ludzi 
-nie graj że przydział na zawsze to sztos
-myślałem, że dym wijący się z grama znowu cie zbudzi
-loooos (buch)
+nie igraj że przydział na zawsze to sztos
+myślałem, że dym wijący się z grama 
+znowu cie zbudzi loooos (buch)
 
-raz za raaaazem zamknięty obieg
+raz za raaaazem zamknięty obieg 
 zrzuć tę maskę - tak
 
 taka klątwa, jeden z drugim 
-leci za przykładem - siad
+leci za tym samym - siad
 
-zapatrzeni w swoje odbicia tropu nie kopią
-że przedziały z życia częściej są puste - siemano gościom
-stój - zostawiasz ślady 
+zapatrzeni tak bez ustanku 
+w swoim odbiciu tropu nie kopią
+przykładu że te przedziały z życia 
+częściej są puste - siemano gościom
+
+stój - zostawiasz ślady, 
+
 skasują cię chamy skasują z radością
 jedna dobra dusza - drżenie całym ciałem
 
-przypomnij sobie dobre sprawy
-te w jedną stronę przeprawy warte, eskapady w bliss
-starte ręce od trzymania drążków zawsze 
-mowily mi twoje oczy 
+poczuj ten stan to opary 
+to jedyna taka faza raz za razem 
+kiedy wiem, że jest tan znowu (w nowiu) 
+ten sam ten stan kiedy czuję ciebie 
+ja już nie wiem sam, sam juz nie wiem 
+co mam ci powiedzieć ha? 
+żaden barter za brak litości
+bilet znowu gdzieś zapodziałem 
+w ramach codzienności 
+
+przypomnij sobie dobre sprawy, te przeprawy, warty 
+nie warte w jedną stronę, eskapady w bliss 
+chaos w duszy, ręce moje od trzymania drążków zawsze starte
+
+jak mowily mi twoje źrenice pełne czarów
 robisz absolutnie nic
-mimo że widzisz, że daję
-a sama uciekasz na koniec przedziału
+
+mimo że widzisz, że tyle daję, a ciągle oddalasz się
+wyciągam wnioski, potem mówisz że to szalone ej
+
+co czuję i widzę nie pokrywa się z trudem
+wiem że na ciebie nie starczy mi sił
+
+subtelnym uśmiechem więc się nie kryję
+gdy sama uciekasz na koniec przedziału
 w swojej udręce zamykasz się click
 
-nie
-jednak te fobie
-nie co jest nie tak
-tak pokierują mnie one
+fobie
 
-skasuj ten stan to opary to jedyna taka faza raz za razem 
-kiedy wiem, że jest tan znowu (w nowiu) ten sam ten stan 
-kiedy czuję ciebie ja już nie wiem sam, sam juz nie wiem 
-co mam ci powiedzieć ha? bilet znowu gdzieś zapodziałem 
-w ramach codzienności żaden barter
-za brak litości
+jednak te fobie
+tak pokierują mnie one
+co jest nie tak
+może będzie dobrze
+
+
+
 
 
 
