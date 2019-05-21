@@ -21,35 +21,45 @@ Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
 Pierdolę fobie, tak tak o nich mówię, na drobne nie rozmień - się 
 (czy) twoich wspomnień mimo, że czujesz że to nie one - nie?
-
 Co komu to komu i z czym tu do ludzi, nie wmawiaj że przydział na zawsze to sztos 
 Myślałem, dym wijący się z grama znowu cie zbudzi loooos (buch)
-
 Raz za raaaazem zamknięty obieg zrzuć tę maskę - tak to
-Taka klątwa, jeden z drugim leci za tym samym (siad)
-
+Taka klątwa, jeden z drugim leci za tym samym (siad słowiański)
 Bez chwili ustanku, za-patrzeni w swoim odbiciu, ta 
 Tropu nie kopią, że przedziały życia, częściej są puste - siemano gościom
-
 Mimo że widzisz, że tyle ci daję, a ciągle oddalasz te sprawy
 Wyciągam wnioski, wrzeszczysz szalone, zaczynam mieć spore obawy
+Ręce od trzymania drążków zawsze starte, chaos w duszy, eskapady w bliss 
+Przypomnij sobie te dobre przeprawy, warty nie warte w jedną stronę, 
+Jak mowily mi twoje zrenice czarami rozwarte, robisz nic (jak mowily mi twoje źrenice pełne czarów rozwarte) (absolutnie)
+Co czuję i widzę nie pokrywa się z trudem, wiem że na ciebie nie starczy mi sił
+Subtelnym uśmiechem więc się nie kryję, gdy sama uciekasz na koniec przedziału
+W swojej udręce zamykasz się click
 
-ręce od trzymania drążków zawsze starte
-chaos w duszy, eskapady w bliss 
-przypomnij sobie te dobre przeprawy, 
-warty nie warte w jedną stronę, 
-jak mowily mi twoje źrenice pełne czarów rozwarte 
-(jak mowily mi twoje zrenice czarami rozwarte)
-robisz (absolutnie) nic
 
-co czuję i widzę nie pokrywa się z trudem
-wiem że na ciebie nie starczy mi sił
-subtelnym uśmiechem więc się nie kryję
-gdy sama uciekasz na koniec przedziału
-w swojej udręce zamykasz się click
 
-fobie
-fobie
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+fobie fobie
 
 pierdole fobie
 jade pod to dyktando
