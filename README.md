@@ -19,41 +19,28 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-Pierdolę fobie, tak tak o nich mówię, 
-Na drobne nie rozmień - się czy twoich wspomnień 
-Mimo, że czujesz że to nie one - nie?
+Pierdolę fobie, tak tak o nich mówię, na drobne nie rozmień - się 
+(czy) twoich wspomnień mimo, że czujesz że to nie one - nie?
 
-Co komu to komu i z czym tu do ludzi 
-Nie wmawiaj że przydział na zawsze to sztos 
-Myślałem, dym wijący się z grama 
-Znowu cie zbudzi loooos 
+Co komu to komu i z czym tu do ludzi, nie wmawiaj że przydział na zawsze to sztos 
+Myślałem, dym wijący się z grama znowu cie zbudzi loooos (buch)
 
-(buch)
+Raz za raaaazem zamknięty obieg zrzuć tę maskę - tak to
+Taka klątwa, jeden z drugim leci za tym samym (siad)
 
-Raz za raaaazem zamknięty obieg 
-Zrzuć tę maskę - tak to
-Taka klątwa, jeden z drugim 
-Leci za tym samym (siad)
+Bez chwili ustanku, za-patrzeni w swoim odbiciu, ta 
+Tropu nie kopią, że przedziały życia, częściej są puste - siemano gościom
 
-bez chwili ustanku,  zapatrzeni 
-w swoim odbiciu, ta, 
+Mimo że widzisz, że tyle ci daję, a ciągle oddalasz te sprawy
+Wyciągam wnioski, wrzeszczysz szalone, zaczynam mieć spore obawy
 
-tropu nie kopią, że przedziały życia 
-częściej są puste - siemano gościom
-
-mimo że widzisz, że tyle ci daję, 
-a ciągle oddalasz te sprawy
-
-wyciągam wnioski, wrzeszczysz szalone
-zaczynam mieć spore obawy
-przypomnij sobie te dobre przeprawy, 
+ręce od trzymania drążków zawsze starte
 chaos w duszy, eskapady w bliss 
+przypomnij sobie te dobre przeprawy, 
 warty nie warte w jedną stronę, 
-ręce moje od trzymania drążków zawsze starte
-jak mowily mi twoje źrenice pełne czarów rozwarte
+jak mowily mi twoje źrenice pełne czarów rozwarte 
+(jak mowily mi twoje zrenice czarami rozwarte)
 robisz (absolutnie) nic
-
-
 
 co czuję i widzę nie pokrywa się z trudem
 wiem że na ciebie nie starczy mi sił
@@ -63,6 +50,21 @@ w swojej udręce zamykasz się click
 
 fobie
 fobie
+
+pierdole fobie
+jade pod to dyktando
+ty w mojej szkole 
+pomysł jest marny
+dostalbys DST - ale sluchasz na darmo, 
+zamotaną głowę
+przez RTB, no halo
+sluchasz jakbym cie uczyl 
+bez cienia mej skruchy
+- w oparach tak jest
+
+pierdolone BDB
+sam sobie wrzucę
+i będzie fest
 
 jednak te fobie
 tak pokierują mnie one
