@@ -19,28 +19,55 @@ Cechuje ich redundancja - zastąpisz pionka pionkiem
 Następna kolejka, no prosze, czy tego chcesz czy nie
 Nim ogarną cie torsje, tunelem jazda jakbym woził cie PKP
 
-pierdolę fobie, tak tak o nich mówię, 
-na drobne nie rozmień - się czy twoich wspomnień 
-mimo, że czujesz że to nie one - nie?
+Pierdolę fobie, tak tak o nich mówię, 
+Na drobne nie rozmień - się czy twoich wspomnień 
+Mimo, że czujesz że to nie one - nie?
 
 co komu to komu i z czym tu do ludzi 
-nie igraj że przydział na zawsze to sztos
+nie igraj że przydział na zawsze to sztos 
 myślałem, że dym wijący się z grama 
 znowu cie zbudzi loooos (buch)
 
 raz za raaaazem zamknięty obieg 
 zrzuć tę maskę - tak
-
+to
 taka klątwa, jeden z drugim 
 leci za tym samym - siad
 
-zapatrzeni tak bez ustanku 
-w swoim odbiciu tropu nie kopią
-przykładu że te przedziały z życia 
+bez chwili ustanku, nie zapatrzeni 
+w swoim odbiciu, ta, tropu nie kopią
+przedziały z życia 
 częściej są puste - siemano gościom
 
-stój - zostawiasz ślady, 
 
+przypomnij sobie dobre sprawy, te przeprawy, warty 
+nie warte w jedną stronę, eskapady w bliss 
+chaos w duszy, ręce moje od trzymania drążków zawsze starte
+
+jak mowily mi twoje źrenice rozwarte pełne czarów
+robisz absolutnie nic
+
+mimo że widzisz, że tyle ci daję, 
+a ciągle oddalasz sprawy
+wyciągam wnioski, potem mówisz że to szalone ej
+zaczynam mieć spore obawy
+co czuję i widzę nie pokrywa się z trudem
+wiem że na ciebie nie starczy mi sił
+
+subtelnym uśmiechem więc się nie kryję
+gdy sama uciekasz na koniec przedziału
+w swojej udręce zamykasz się click
+
+fobie
+fobie
+
+jednak te fobie
+tak pokierują mnie one
+co jest nie tak
+może będzie dobrze
+
+puste przystanki
+stój - zostawiasz ślady, 
 skasują cię chamy skasują z radością
 jedna dobra dusza - drżenie ciałem całym
 
@@ -53,31 +80,6 @@ co mam ci powiedzieć ha?
 żaden barter za brak litości
 bilet znowu gdzieś zapodziałem 
 w ramach codzienności 
-
-przypomnij sobie dobre sprawy, te przeprawy, warty 
-nie warte w jedną stronę, eskapady w bliss 
-chaos w duszy, ręce moje od trzymania drążków zawsze starte
-
-jak mowily mi twoje źrenice pełne czarów
-robisz absolutnie nic
-
-mimo że widzisz, że tyle daję, a ciągle oddalasz się
-wyciągam wnioski, potem mówisz że to szalone ej
-
-zaczynam mieć spore obawy
-co czuję i widzę nie pokrywa się z trudem
-wiem że na ciebie nie starczy mi sił
-
-subtelnym uśmiechem więc się nie kryję
-gdy sama uciekasz na koniec przedziału
-w swojej udręce zamykasz się click
-
-fobie
-
-jednak te fobie
-tak pokierują mnie one
-co jest nie tak
-może będzie dobrze
 
 
 
