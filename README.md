@@ -23,37 +23,40 @@ Pierdolę fobie, tak tak o nich mówię,
 Na drobne nie rozmień - się czy twoich wspomnień 
 Mimo, że czujesz że to nie one - nie?
 
-co komu to komu i z czym tu do ludzi 
-nie igraj że przydział na zawsze to sztos 
-myślałem, że dym wijący się z grama 
-znowu cie zbudzi loooos (buch)
+Co komu to komu i z czym tu do ludzi 
+Nie wmawiaj że przydział na zawsze to sztos 
+Myślałem, dym wijący się z grama 
+Znowu cie zbudzi loooos 
 
-raz za raaaazem zamknięty obieg 
-zrzuć tę maskę - tak
-to
-taka klątwa, jeden z drugim 
-leci za tym samym - siad
+(buch)
 
-bez chwili ustanku, nie zapatrzeni 
-w swoim odbiciu, ta, tropu nie kopią
-przedziały z życia 
+Raz za raaaazem zamknięty obieg 
+Zrzuć tę maskę - tak to
+Taka klątwa, jeden z drugim 
+Leci za tym samym (siad)
+
+bez chwili ustanku,  zapatrzeni 
+w swoim odbiciu, ta, 
+
+tropu nie kopią, że przedziały życia 
 częściej są puste - siemano gościom
 
-
-przypomnij sobie dobre sprawy, te przeprawy, warty 
-nie warte w jedną stronę, eskapady w bliss 
-chaos w duszy, ręce moje od trzymania drążków zawsze starte
-
-jak mowily mi twoje źrenice rozwarte pełne czarów
-robisz absolutnie nic
-
 mimo że widzisz, że tyle ci daję, 
-a ciągle oddalasz sprawy
-wyciągam wnioski, potem mówisz że to szalone ej
+a ciągle oddalasz te sprawy
+
+wyciągam wnioski, wrzeszczysz szalone
 zaczynam mieć spore obawy
+przypomnij sobie te dobre przeprawy, 
+chaos w duszy, eskapady w bliss 
+warty nie warte w jedną stronę, 
+ręce moje od trzymania drążków zawsze starte
+jak mowily mi twoje źrenice pełne czarów rozwarte
+robisz (absolutnie) nic
+
+
+
 co czuję i widzę nie pokrywa się z trudem
 wiem że na ciebie nie starczy mi sił
-
 subtelnym uśmiechem więc się nie kryję
 gdy sama uciekasz na koniec przedziału
 w swojej udręce zamykasz się click
